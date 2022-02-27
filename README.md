@@ -2,5 +2,5 @@
 - 👀 I’m interested in IO/T and home automatisation
 - 🌱 I’m currently learning home automatisation
 - 💞️ I’m looking to collaborate on all i know
-- 📫 How to reach me jp.chapelle@sgr.fr
+- 📫 How to reach me jp.chapelle@sfr.fr
 - sorry i'm only french and be indulgent for my transation
